@@ -1,8 +1,5 @@
 💎 ChatGPT Pro
 
-""ChatGPT" (https://img.shields.io/badge/ChatGPT-OpenAI-blue)" (https://openai.com/chatgpt)
-""License" (https://img.shields.io/badge/License-Proprietary-red)" (https://openai.com)
-
 «ChatGPT Pro is OpenAI's highest-tier AI subscription, designed for professionals, developers, and power users who need maximum performance, speed, and advanced capabilities.»
 
 ---
