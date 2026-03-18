@@ -155,8 +155,8 @@ Who should use Pro?
 - ChatGPT unlimited usage
 - best AI subscription
 
-#contact me on telegram 👇👇
-👉https://t.me/H16kM4w
+contact me on telegram 👇👇
+https://t.me/H16kM4w
 to buy this software 
 
 
