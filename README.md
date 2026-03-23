@@ -153,7 +153,7 @@ Who should use Pro?
 - best AI subscription
 
 contact me on telegram 👇👇
-https://t.me/H16kM4w
+https://t.me/PTX_OwnerX
 to buy this software 
 
 
